@@ -1,6 +1,6 @@
 ALL SKINS MADE BY LOVE WITH ME. IF YOU SEE SOMEONE IN A SIMILAR SKIN AS MY OC SPECIFIC ONES PLEASE CONTACT ME. 
 
-  18. mdni. PT  player since release :J  usually seen as my clown pony but i have others. just look for the link! 
+  18. mdni unless im in the pg server. PT  player since release :J  usually seen as my clown pony but i have others. just look for the link! 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=vs06pr9c0eqe6ummgt5lm56z4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 ![uXkSQp6](https://github.com/user-attachments/assets/4313ae63-28f0-4c69-809e-f32ba93bc427)
